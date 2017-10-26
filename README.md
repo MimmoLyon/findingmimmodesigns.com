@@ -1,2 +1,0 @@
-# findingmimmodesigns.com
-Main Site
